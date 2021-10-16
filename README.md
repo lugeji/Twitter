@@ -8,3 +8,4 @@
 ### 点击进入下载页面：https://cloud.cdtspan.xyz/s/k5h6
 
 ### 更新维护不易，你的打赏将成为我更新和维护的动力，感谢支持！
+![](https://github.com/lugeji/Twitter/alipay/alipay.png)
